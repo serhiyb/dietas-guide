@@ -6,3 +6,9 @@
 section {
   float: none;
 }
+
+@media print, screen and (max-width: 960px) {
+  section {
+    border: 0;
+  }
+}
