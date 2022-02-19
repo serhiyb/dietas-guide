@@ -1,3 +1,20 @@
+# Welcome to Amazonian Plant Dietas
+
+We work with different Amazonian Master Plants and offer Dieta Kits for sale.
+The Dieta Kit contains:
+- Detailed instructions on how to do the Dieta on your own.
+- Preparatory plants that will cleanse and prepare your body and spirit for the Dieta.
+- The actual Master Plant conviniently dosed and pre-packed for you in the tea bags.
+
+The list of Master Plants currently available for purchase:
+1. Bobinsana
+2. Ajo Sacha
+3. Remo Caspi
+4. Chullachaqui Caspi
+
+All the plants are wild harfested in the Rainforest by our friends in Peru.
+
+
 ## Welcome to GitHub Pages
 
 You can use the [editor on GitHub](https://github.com/serhiyb/dietas-guide/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
