@@ -2,7 +2,7 @@
 
 We work with different Amazonian Master Plants and offer them for sale.
 
-### 3-days Dieta Kit:
+### 3-days Dieta Kit
 
 3-days Dieta Kit is a good starting point for those who want to start building a relationship with the Master Plant. 
 
