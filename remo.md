@@ -51,7 +51,7 @@ One of the traditional Dieta protocols is described below.
 #### Day 1
 
 - At 5am drink half (one cup) of the prepared Remo Caspi tea (the one that was sitting overnight).
-- If your schedule allows, go back to sleep. Remo Caspi often come to us in dreams with their lessons and healings.
+- If your schedule allows, go back to sleep. Remo Caspi often comes to us in dreams with their lessons and healings.
 - At 5pm drink the second half of the Remo Caspi tea and prepare the tea for the next day by following the same procedure: 
   - take two tea bags with the Remo Caspi
   - put it into a pot and add two cups of water to it 
