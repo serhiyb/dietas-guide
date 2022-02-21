@@ -1,4 +1,4 @@
-# [Amazonian Plant Dietas](https://dietas.guide)
+# [Amazonian Plant Dietas](./)
 
 ## Chuluchaqui Caspi
 
