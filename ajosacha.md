@@ -27,9 +27,7 @@ Add at least one cup of boiling water to each and let it sit for the next 24 hou
 
 ### Dieta
 
-Dieta will last for 3 days. 
-
-Recommendations for the dieta:
+Dieta will last for 3 days. Recommendations for the dieta:
 
 _Don'ts_:
 - no salt, no sugar, no spices
