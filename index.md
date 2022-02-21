@@ -1,4 +1,4 @@
-# Amazonian Plant Dietas
+# [Amazonian Plant Dietas](./)
 
 We work with different Amazonian Master Plants and offer them for sale.
 
