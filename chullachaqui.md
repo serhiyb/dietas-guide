@@ -1,4 +1,6 @@
-# Chuluchaqui Caspi
+# [Amazonian Plant Dietas](./)
+
+## Chuluchaqui Caspi
 
 We are grateful for your interest in the plant. By dieting with Chuluchaqui many people have found their healing, guidance, knowledge, and inspiration.
 
@@ -7,7 +9,7 @@ The Chuluchaqui Dieta Kit package contains:
 - 6 tea bags of Cat's Claw
 - 6 tea bags of the Chuluchaqui Caspi
 
-## Dieta preparation
+### Dieta preparation
 
 2 days before the Dieta:
 - drink Pau D'Arco and Cat's Claw tea. To prepare the tea:
@@ -23,7 +25,7 @@ The Chuluchaqui Dieta Kit package contains:
 One day before the dieta around 5pm take two tea bags with the Chuluchaqui, put it into a pot, and add two cups of water to it. 
 Bring it to boil, reduce the heat to gently boil / simmer it for another 10 minutes, turn off the heat, cover it with a lid, and let it sit there overnight. 
 
-## Dieta
+### Dieta
 
 Dieta will last for 3 days. 
 
@@ -46,7 +48,7 @@ _Do's_:
 
 One of the traditional Dieta protocols is described below.
 
-### Day 1
+#### Day 1
 
 - At 5am drink half (one cup) of the prepared Chuluchaqui tea (the one that was sitting overnight).
 - If your schedule allows, go back to sleep. Chuluchaqui often come to us in dreams with their lessons and healings.
@@ -57,20 +59,20 @@ One of the traditional Dieta protocols is described below.
   - reduce the heat to gently boil / simmer it for another 10 minutes
   - turn off the heat, cover it with a lid, and let it sit there overnight 
 
-### Day 2
+#### Day 2
 
 Maintain the same dieta protocol as on the first day:
 
 - 5am drink half of the tea. If possible, go back to sleep.
 - 5pm drink the second half and prepare the tea for the 3rd day by following the same procedure.
 
-### Day 3
+#### Day 3
 
 - 5am drink half of the tea. If possible, go back to sleep.
 - 5pm take the last drink of the tea.
 
 
-### Day 4
+#### Day 4
 
 When you wake up, it's time to close the dieta. 
 Traditionally it is done by squeezing lime juice into a small amount of water, adding a pinch of salt, mixing it well, and drinking.
