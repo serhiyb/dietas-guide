@@ -27,9 +27,7 @@ Bring it to boil, reduce the heat to gently boil / simmer it for another 10 minu
 
 ### Dieta
 
-Dieta will last for 3 days. 
-
-Recommendations for the dieta:
+Dieta will last for 3 days. Recommendations for the dieta:
 
 _Don'ts_:
 - no salt, no sugar, no spices
