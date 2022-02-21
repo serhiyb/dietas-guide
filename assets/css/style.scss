@@ -3,6 +3,10 @@
 
 @import "{{ site.theme }}";
 
+body {
+  color: 3d3d3d;
+}
+
 section {
   float: none;
   width: 800px;
