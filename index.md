@@ -14,10 +14,10 @@ The Kit contains:
 ### Master Plants
 
 The list of Master Plants currently available for purchase:
-1. Bobinsana
-2. Ajo Sacha
-3. Remo Caspi
-4. Chullachaqui Caspi
+1. [Bobinsana](./bobinsana)
+2. [Ajo Sacha](./ajosacha)
+3. [Remo Caspi](./remo)
+4. [Chullachaqui Caspi](./chullachaqui)
 
 All the plants are wild harfested in the Rainforest by our friends in Peru.
 
