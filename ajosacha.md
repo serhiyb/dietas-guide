@@ -22,8 +22,8 @@ The Ajo Sacha Dieta Kit package contains:
 - obstain from ograsms
 - you can maintain your regular dieta during this preparation period
 
-One day before the dieta around 5pm take two tea bags with the Ajo Sacha, put it into a pot, and add two cups of water to it. 
-Bring it to boil, reduce the heat to gently boil / simmer it for another 10 minutes, turn off the heat, cover it with a lid, and let it sit there overnight. 
+One day before the dieta around 5am in the morning take two tea bags with the Ajo Sacha and put them into separate cups (morning cup and evening cup). 
+Add at least one cup of boiling water to each and let it sit for the next 24 hours.  
 
 ### Dieta
 
@@ -50,26 +50,21 @@ One of the traditional Dieta protocols is described below.
 
 #### Day 1
 
-- At 5am drink half (one cup) of the prepared Ajo Sacha tea (the one that was sitting overnight).
-- If your schedule allows, go back to sleep. Ajo Sacha often come to us in dreams with their lessons and healings.
-- At 5pm drink the second half of the Ajo Sacha tea and prepare the tea for the next day by following the same procedure: 
-  - take two tea bags with the Ajo Sacha
-  - put it into a pot and add two cups of water to it 
-  - bring it to boil
-  - reduce the heat to gently boil / simmer it for another 10 minutes
-  - turn off the heat, cover it with a lid, and let it sit there overnight 
+- At 5am drink one cup of the prepared Ajo Sacha tea (morning cup). Prepare the next morning cup by putting a new tea bag with Ajo Sacha and adding atleast 1 cup of boiling water.
+- If your schedule allows, go back to sleep. Ajo Sacha often comes to us in dreams with their lessons and healings.
+- At 5pm drink the second cup of the Ajo Sacha tea (evening cup) and prepare the next evening cup by following the same procedure as before.
 
 #### Day 2
 
 Maintain the same dieta protocol as on the first day:
 
-- 5am drink half of the tea. If possible, go back to sleep.
-- 5pm drink the second half and prepare the tea for the 3rd day by following the same procedure.
+- 5am drink the morning cup and prepare the next one. If possible, go back to sleep.
+- 5pm drink the evening cup and prepare the next one.
 
 #### Day 3
 
-- 5am drink half of the tea. If possible, go back to sleep.
-- 5pm take the last drink of the tea.
+- 5am drink the last morning cup. If possible, go back to sleep.
+- 5pm drink the last evening cup.
 
 
 #### Day 4
