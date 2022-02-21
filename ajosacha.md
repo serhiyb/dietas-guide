@@ -5,9 +5,9 @@
 We are grateful for your interest in the plant. By dieting with Ajo Sacha many people have found their healing, guidance, knowledge, and inspiration.
 
 The Ajo Sacha Dieta Kit package contains:
-- 6 tea bags of Pau D'Arco
-- 6 tea bags of Cat's Claw
-- 6 tea bags of the Ajo Sacha
+*   6 tea bags of Pau D'Arco
+*   6 tea bags of Cat's Claw
+*   6 tea bags of the Ajo Sacha
 
 ### Dieta preparation
 
