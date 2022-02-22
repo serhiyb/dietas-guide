@@ -4,7 +4,9 @@
 
 ![Bobinsana](/assets/images/small/bobinsana.jpg)
 
-We are grateful for your interest in the plant. By dieting with Bobinsana many people have found their healing, guidance, knowledge, and inspiration.
+Bobinsana is a gentle yet powerful heart opening medicine.
+The plant is deeply respected among the indigineous people of the Amazon.
+It is well known for its power to open the heart and to heal spiritual and emotional wounds of the heart, such as grief, pain of loss and heartbreak.
 
 The Bobinsana Dieta Kit package contains:
 - 6 tea bags of Pau D'Arco
