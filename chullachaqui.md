@@ -2,6 +2,8 @@
 
 ## Chuluchaqui Caspi
 
+![Chuluchaqui](/assets/images/small/chulluchaqui.jpg)
+
 We are grateful for your interest in the plant. By dieting with Chuluchaqui many people have found their healing, guidance, knowledge, and inspiration.
 
 The Chuluchaqui Dieta Kit package contains:
