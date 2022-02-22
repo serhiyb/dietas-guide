@@ -25,8 +25,8 @@ All the plants are wild harfested in the Rainforest by our friends in Peru.
 ### Pricing
 
 - $25 for the Dieta Kit
-- $70 for the 200 grams of the raw plant
-- $130 for the 1 pound of the raw plant
+- $70 for the 200 grams of the raw Master Plant
+- $130 for the 1 pound of the raw Master Plant
 
 ### Contact
 
