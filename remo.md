@@ -1,6 +1,8 @@
 # [Amazonian Plant Dietas](./)
 
-## Remo Caspi
+## About Remo Caspi
+
+![Remo Caspi](/assets/images/small/remocaspi.jpg)
 
 We are grateful for your interest in the plant. By dieting with Remo Caspi many people have found their healing, guidance, knowledge, and inspiration.
 
