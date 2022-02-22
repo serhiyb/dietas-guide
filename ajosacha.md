@@ -1,6 +1,8 @@
 # [Amazonian Plant Dietas](./)
 
-## Ajo Sacha
+## About Ajo Sacha
+
+![Ajo Sacha](/assets/images/small/ajosacha.jpg)
 
 We are grateful for your interest in the plant. By dieting with Ajo Sacha many people have found their healing, guidance, knowledge, and inspiration.
 
