@@ -1,6 +1,7 @@
 # [Amazonian Plant Dietas](./)
 
 We work with different Amazonian Master Plants and offer them for sale.
+By dieting with the Master Plants people have found their healing, guidance, knowledge, and inspiration.
 
 ### 3-days Dieta Kit
 
