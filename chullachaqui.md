@@ -1,10 +1,10 @@
 # [Amazonian Plant Dietas](./)
 
-## Chuluchaqui Caspi
+## Chulluchaqui Caspi
 
-![Chuluchaqui](/assets/images/small/chulluchaqui.jpg)
+![Chulluchaqui](/assets/images/small/chulluchaqui.jpg)
 
-We are grateful for your interest in the plant. By dieting with Chuluchaqui many people have found their healing, guidance, knowledge, and inspiration.
+Chulluchaqui Caspi is known as a protector of the jungles. Acting as a guardian and protector to the student, this plant offers true wisdom of the forest, opening the dietero up to many other master plants. 
 
 The Chuluchaqui Dieta Kit package contains:
 - 6 tea bags of Pau D'Arco
