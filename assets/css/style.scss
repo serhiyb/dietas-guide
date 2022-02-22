@@ -7,13 +7,15 @@ body {
   color: #3d3d3d;
 }
 
-section {
-  float: none;
-  width: 800px;
-}
 
 @media print, screen and (max-width: 960px) {
   section {
     border: 0;
+  }
+}
+
+@media print, screen and (min-width: 960px) {
+  section {
+    width: 800px;
   }
 }
