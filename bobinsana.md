@@ -2,7 +2,7 @@
 
 ## About Bobinsana
 
-![Bobinsana](./assets/images/bobinsana.jpg)
+![Bobinsana](./assets/images/small/bobinsana.jpg)
 
 We are grateful for your interest in the plant. By dieting with Bobinsana many people have found their healing, guidance, knowledge, and inspiration.
 
