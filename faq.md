@@ -29,6 +29,6 @@ One way to do it:
 - Sunday night do the 3rd ceremony. The spirit of the plant is still going to be in your body.
 
 
-### I can't decide which Master Plant to choose to start with.
+#### I can't decide which Master Plant to choose to start with.
 
 Do a little bit of research and see which plants resonates with you the most. Bobinsana and Ajo Sacha are considered to be great options for the people new to the dietas.
