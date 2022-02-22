@@ -28,6 +28,8 @@ All the plants are wild harfested in the Rainforest by our friends in Peru.
 - $70 for the 200 grams of the raw Master Plant
 - $130 for the 1 pound of the raw Master Plant
 
+* shipping cost is not included.
+
 ### Contact
 
 Reach out to us: info@dietas.guide
