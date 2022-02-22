@@ -35,4 +35,4 @@ We prepared answers to some of the frequently asked questions related to the Die
 
 ### Contact
 
-Reach out to us: info@dietas.guide
+Reach out to us: [info@dietas.guide](mailto:info@dietas.guide)
