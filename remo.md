@@ -4,7 +4,7 @@
 
 ![Remo Caspi](/assets/images/small/remocaspi.jpg)
 
-We are grateful for your interest in the plant. By dieting with Remo Caspi many people have found their healing, guidance, knowledge, and inspiration.
+Remo Caspi is a huge tree of the Amazon Rainforest. It is believed that dieting with the bark of the tree gives dietero strength, guidance, and courage to face the challenges of life. 
 
 The Remo Caspi Dieta Kit package contains:
 - 6 tea bags of Pau D'Arco
