@@ -30,6 +30,9 @@ All the plants are wild harfested in the Rainforest by our friends in Peru.
 
 shipping cost is not included.
 
+### FAQ
+We prepared answers to some of the frequently asked questions related to the Dieta [here](./faq).
+
 ### Contact
 
 Reach out to us: info@dietas.guide
