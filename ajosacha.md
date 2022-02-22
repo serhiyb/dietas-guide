@@ -4,7 +4,8 @@
 
 ![Ajo Sacha](/assets/images/small/ajosacha.jpg)
 
-We are grateful for your interest in the plant. By dieting with Ajo Sacha many people have found their healing, guidance, knowledge, and inspiration.
+Amazonian indigenous people belive that Ajo Sacha (a.k.a "Wild Garlic") clears out impurities from the dieters energy body and infuses it with a pervasive light.
+During the dieta it is common to get into relaxed meditative states.
 
 The Ajo Sacha Dieta Kit package contains:
 *   6 tea bags of Pau D'Arco
