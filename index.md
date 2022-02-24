@@ -10,7 +10,7 @@ By dieting with the Master Plants many people have found their healing, guidance
 The Kit contains:
 - Detailed instructions on how to do the Dieta on your own.
 - Preparatory plants that will cleanse and prepare your body and spirit for the Dieta.
-- The actual Master Plant conviniently dosed and pre-packed for you in the tea bags.
+- The Master Plant of your choosing conveniently dosed and pre-packed for you in the tea bags.
 
 ### Master Plants
 
@@ -20,7 +20,7 @@ The list of Master Plants currently available for purchase:
 3. [Remo Caspi](./remo)
 4. [Chullachaqui Caspi](./chullachaqui)
 
-All the plants are wild harfested in the Rainforest by our friends in Peru.
+All the plants are wild harvested in the Amazonian Rainforest by native people in Peru.
 
 ### Pricing
 
@@ -28,7 +28,7 @@ All the plants are wild harfested in the Rainforest by our friends in Peru.
 - $70 for the 200 grams of the raw Master Plant
 - bigger quantities are available upon request
 
-shipping cost is not included.
+shipping cost is not included in the price and is an additional charge. 
 
 ### FAQ
 We prepared answers to some of the frequently asked questions related to the Dieta [here](./faq).
