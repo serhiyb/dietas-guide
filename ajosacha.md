@@ -18,11 +18,11 @@ The Ajo Sacha Dieta Kit package contains:
 - drink Pau D'Arco and Cat's Claw tea. To prepare the tea:
   - put 3 tea bags of Pau D'arco and 3 tea bags of Cat's Claw into a pot and add 3 cups of water
   - bring it to boil
-  - reduce the heat to gently boil / simmer it for another 10 minutes
+  - reduce the heat to gentle rolling boil and simmer brew for another 10 minutes
   - turn off the hit and let it steep for another 10-15 minutes
   - drink hot or cold 3 times a day
 - avoid alcohol and street drugs
-- obstain from ograsms
+- abstain from ograsms
 - you can maintain your regular dieta during this preparation period
 
 One day before the dieta around 5am in the morning take two tea bags with the Ajo Sacha and put them into separate cups (morning cup and evening cup). 
