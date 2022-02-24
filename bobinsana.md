@@ -54,19 +54,14 @@ One of the traditional Dieta protocols is described below.
 
 - At 5am drink half (one cup) of the prepared Bobinsana tea (the one that was sitting overnight).
 - If your schedule allows, go back to sleep. Bobinsana often comes to us in dreams with their lessons and healings.
-- At 5pm drink the second half of the Bobinsana tea and prepare the tea for the next day by following the same procedure: 
-  - take two tea bags with the Bobinsana
-  - put it into a pot and add two cups of water to it 
-  - bring it to boil
-  - reduce the heat to gently boil / simmer it for another 10 minutes
-  - turn off the heat, cover it with a lid, and let it sit there overnight 
+- At 5pm drink the second half of the Bobinsana tea and prepare the tea for the next day by following the same procedures.
 
 #### Day 2
 
 Maintain the same dieta protocol as on the first day:
 
 - 5am drink half of the tea. If possible, go back to sleep.
-- 5pm drink the second half and prepare the tea for the 3rd day by following the same procedure.
+- 5pm drink the second half and prepare the tea for the 3rd day by following the same procedures.
 
 #### Day 3
 
