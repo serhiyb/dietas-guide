@@ -38,7 +38,7 @@ _Don'ts_:
 - reduce (ideally eliminate) any social interactions (including social media) - you want to spend as much time as possible 1:1 with the plant
 
 _Do's_:
-- you can eat:
+- eat bland, flavorless food. Some common options are:
   - oats, rice (white/brown), potatoes
   - cucumbers, avocado, broccoli
 - focus on your interior, meditate
