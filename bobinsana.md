@@ -6,7 +6,7 @@
 
 Bobinsana is a gentle yet powerful heart opening medicine.
 The plant is deeply respected among the indigineous people of the Amazon.
-It is well known for its power to open the heart and to heal spiritual and emotional wounds of the heart, such as grief, pain of loss and heartbreak.
+It is well known for its power to open the heart and to heal spiritual and emotional wounding that remains trapped and stagnant within the heart, such as grief and heartbreak.
 
 The Bobinsana Dieta Kit package contains:
 - 6 tea bags of Pau D'Arco
