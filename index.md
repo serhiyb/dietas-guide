@@ -13,6 +13,7 @@ The Kit contains:
 - The Master Plant of your choosing conveniently dosed and pre-packed for you in the tea bags.
 
 ### Master Plants
+People of the Amazonian Rainforest use the term "Master Plants" to refer to the plants with especially strong healing and spritual qualities.  
 
 The list of Master Plants currently available for purchase:
 1. [Bobinsana](./bobinsana)
