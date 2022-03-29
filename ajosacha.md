@@ -25,7 +25,7 @@ The Ajo Sacha Dieta Kit package contains:
 - abstain from ograsms
 - you can maintain your regular dieta during this preparation period
 
-One day before the dieta around 5am in the morning take two tea bags with the Ajo Sacha and put them into separate cups (morning cup and evening cup). 
+One day before the dieta around 5am in the morning take two tea bags with the Ajo Sacha (or two rounded tablespoons of the raw plant) and put them into separate cups (morning cup and evening cup). 
 Add at least one cup of boiling water to each and let it sit for the next 24 hours.  
 
 ### Dieta
