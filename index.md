@@ -30,6 +30,10 @@ All the plants are wild harvested in the Amazonian Rainforest by native people i
 
 shipping cost is not included in the price and is an additional charge. 
 
+The payment can be done via PayPal/Venmo/Zelle.
+
+Send us an [email](mailto:info@dietas.guide) with the plants you would like to purchase and we will provide you with the details.
+
 ### FAQ
 We prepared answers to some of the frequently asked questions related to the Dieta [here](./faq).
 
