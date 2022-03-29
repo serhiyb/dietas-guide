@@ -26,7 +26,7 @@ The Bobinsana Dieta Kit package contains:
 - abstain from ograsms
 - you can maintain your regular dieta during this preparation period
 
-One day before the dieta around 5pm take two tea bags with the Bobinsana, put it into a pot, and add two cups of water to it. 
+One day before the dieta around 5pm take two tea bags with the Bobinsana (or two rounded teaspons of the raw plant), put it into a pot, and add two cups of water to it. 
 Bring it to boil, reduce the heat to gentle rolling boil and simmer brew for another 10 minutes, turn off the heat, cover it with a lid, and let it sit there overnight. 
 
 ### Dieta
