@@ -1,6 +1,6 @@
 # [Amazonian Plant Dietas](./)
 
-We work with different Amazonian Master Plants and offer them for sale.
+We are Anna and Serhiy, and we work with different Amazonian Master Plants and offer them for sale.
 By dieting with the Master Plants many people have found their healing, guidance, knowledge, and inspiration.
 
 ### 3-days Dieta Kit
