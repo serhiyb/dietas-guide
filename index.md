@@ -1,6 +1,6 @@
 # [Amazonian Plant Dietas](./)
 
-We are Anna and Serhiy, and we have been working with different Amazonian Master Plants over the last couple years. 
+We are Anna and Serhiy from Tucson, Arizona and we have been working with different Amazonian Master Plants over the last couple years. 
 Inspired by the healing and guidance provided by these wonderful plants we decided to prepare instructions and offer some of the Master Plants for sale to those who are interested in building a relationship with them but currently is not able to travel directly to the jungle.
 
 ### 3-days Dieta Kit
