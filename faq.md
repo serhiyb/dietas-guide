@@ -17,6 +17,10 @@ The spirit of the plant might visit you in your dreams.
 
 That is the plant helping you. Don't resist and lean towards the sensations/emotions.
 
+### Can I do Rapéh/Hapéh during the dieta?
+
+Yes, Rapéh can help you with grounding and going into the expirience deeper.
+
 #### Can I combine the dieta with Ayahuasca ceremony?
 
 That is an excellent idea. Ayahuasca helps with establishing deeper relationship with the spirit of the plant.
