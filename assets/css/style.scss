@@ -19,3 +19,21 @@ body {
     width: 800px;
   }
 }
+
+.announcement {
+  display: inline-block;
+  height: 100%;
+  text-align: center;
+  width: 100%;
+  background: #006937;
+  color: white;
+  font-family: Arial, sans;
+  margin: 0;
+  padding: 0;
+  vertical-align: middle;
+  font-size: 0.8em;
+}
+
+.announcement a { 
+  color: #f79226; 
+}
